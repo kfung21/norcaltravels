@@ -1,6 +1,6 @@
 ---
 title: Where is NorCal?
-date: 5-14-2020
+date: 2020-05-14
 tags: 
   - Norcal
 author: NCT
@@ -9,7 +9,6 @@ sidebar: auto
 hidden: true
 summary: How is NorCal defined?
 ---
-<TagLinks />
 <img src="https://upload.wikimedia.org/wikipedia/commons/3/3f/Northern_California_counties_in_red.png" width=300px>
 
 ## *Where is NorCal*

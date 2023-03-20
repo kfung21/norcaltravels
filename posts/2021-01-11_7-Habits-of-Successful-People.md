@@ -10,7 +10,6 @@ tags:
     - work
     - communication
 ---
-<TagLinks />
 
 ## The Habits
 Habits are the intersection of:

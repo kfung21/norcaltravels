@@ -1,6 +1,6 @@
 ---
 title: Jokes [Reader's Digest]
-date: 6-26-2020
+date: 2020-06-26
 tags: ["communication"]
 author: NCT
 blog: true
@@ -113,10 +113,10 @@ STEVE MARTIN ON SUCCESS <br/>
 *Some people just have a way with words, and other people … oh … not have way. Steve Martin*
 
 GORE VIDAL ON THE FOUR MOST BEAUTIFUL WORDS <br/>
-*The four most beautiful words in our common language:  I told you so. Gore Vidal*
+*The four most beautiful words in our common language: I told you so. Gore Vidal*
 
 GORDIE HOWE ON THE LANGUAGE OF SPORTS <br/>
-*All pro athletes are  bilingual. They speak English and profanity. Gordie Howe, hockey player*
+*All pro athletes are bilingual. They speak English and profanity. Gordie Howe, hockey player*
 
 BONNIE MCFARLANE ON THE TOUGHEST LANGUAGE… <br/>
 *I don’t want to brag, but I do speak pig Latin; I mean, I’m not fluent, but I’m sure if I ever went there, I could get by. Bonnie McFarlane*
@@ -128,10 +128,10 @@ FRIENDLY COMPETITION… <br/>
 *My girlfriend and I often laugh about how competitive we are. But I laugh more.*
 
 MICHAEL IAN BLACK ON MOM’S BEST DISH <br/>
-*When I was growing up, my mother’s best dish was store-bought Entenmann’s chocolate chip cookies. —Michael Ian Black,  from Navel Gazing (Gallery Books)*
+*When I was growing up, my mother’s best dish was store-bought Entenmann’s chocolate chip cookies. —Michael Ian Black, from Navel Gazing (Gallery Books)*
 
 IF YOU NEED SOMETHING DONE WRONG… <br/>
-*“Next time I send a damn fool,  I go myself.” —Sgt. Louis Cukela, reportedly said at the  Battle of Belleau Wood during World War I*
+*“Next time I send a damn fool, I go myself.” —Sgt. Louis Cukela, reportedly said at the Battle of Belleau Wood during World War I*
 
 ELIZA BAYNE ON BIKINI DANGERS <br/>
 *Probably the worst thing you can hear when you’re wearing a bikini is “Good for you!” @ElizaBayne*
@@ -143,7 +143,7 @@ THE POINT OF A CONFERENCE CALL <br/>
 *A conference call is the best way for a dozen people to say “bye” 300 times. @DamienFahey*
 
 TIM SIEDELL ON THE REVENANT <br/>
-*The Revenant (2015).  An epic tale of one man’s desperate journey to  do whatever it takes to  finally win an Oscar. @badbanana (Tim Siedell)*
+*The Revenant (2015). An epic tale of one man’s desperate journey to do whatever it takes to finally win an Oscar. @badbanana (Tim Siedell)*
 
 NATHAN USHER ON LUKE SKYWALKER <br/>
 *Luke Skywalker is my favorite hero that looks 100 percent prepared to figure skate at all times. @thenatewolf (Nathan Usher)*
@@ -158,7 +158,7 @@ THE PROBLEM WITH SCOOBY-DOO <br/>
 *Every Scooby-Doo episode would literally be two minutes long if the gang went to the mask store first and asked a few questions. @SCbchbum (Erica)*
 
 JENNY MOLLEN DEFINES DRAMA <br/>
-*Drama: a word boring people use  to describe fun people. @jennyandteets (Jenny Mollen)*
+*Drama: a word boring people use to describe fun people. @jennyandteets (Jenny Mollen)*
 
 SIGN IN NEW-AGEY WOODSTOCK, NEW YORK: <br/>
 *“If you lived here, you’d be om by now.” Alan Zoldan, Wesley Hills, New York*
@@ -170,16 +170,16 @@ UNA LAMARCHE ON SPRING FASHION <br/>
 *No, I’m not walking on string-cheese stilts. These are just my first bare legs of the season. @sassycurmudgeon (Una LaMarche)*
 
 TOM PARRY ON FOLK WISDOM <br/>
-*Red sky at night, shepherd’s  delight. Blue sky at night, day. Humorist Tom Parry*
+*Red sky at night, shepherd’s delight. Blue sky at night, day. Humorist Tom Parry*
 
 MICHELLE WOLF ON A FRIEND’S PREGNANCY <br/>
 *One of my friends is pregnant. And I’m really excited. Not for the baby but because she’s one of my skinniest friends. @MichelleIsAWolf (Michelle Wolf)*
 
 AARON FULLERTON ON SPELLING <br/>
-*We can teach kids there’s no i in team, but it’s way more important  to teach them that there’s no a in  definitely. Humorist Aaron Fullerton*
+*We can teach kids there’s no i in team, but it’s way more important to teach them that there’s no a in definitely. Humorist Aaron Fullerton*
 
 ROBIN MCCAULEY ON WINE <br/>
-*This may be the wine talking,  but I really, really, really, really love wine. @RobinMcCauley*
+*This may be the wine talking, but I really, really, really, really love wine. @RobinMcCauley*
 
 A BUSINESSMAN ON PERFECTION… <br/>
 *The closest a person ever comes to perfection is when he fills out a job application form. Businessman Stanley Randall*
@@ -188,19 +188,19 @@ A BUSINESSMAN ON PERFECTION… <br/>
 *Please stop calling us your “squad,” Linda; this is book club. @RandiLawson*
 
 BONNIE MCFARLANE ON THE KEY TO A GOOD MARRIAGE <br/>
-*I once gave my husband the  silent treatment for an entire week, at the end of which he declared, “Hey, we’re getting along pretty great lately!” Bonnie McFarlane,  from You’re Better Than Me*
+*I once gave my husband the silent treatment for an entire week, at the end of which he declared, “Hey, we’re getting along pretty great lately!” Bonnie McFarlane, from You’re Better Than Me*
 
 HONEST BRAND SLOGANS <br/>
-*Hallmark: “When you care enough to give a card mass-produced by  a corporation.” Ritz crackers: “Tiny, edible plates.” CliffsNotes: “They’re still going to know you didn’t read the book.” Gillette: “We’re just going to keep adding blades.” ChapStick: “You’ll misplace it before the tube’s empty.” Hot Pockets: “Every bite is a different temperature.” Source: honestslogans.com*
+*Hallmark: “When you care enough to give a card mass-produced by a corporation.” Ritz crackers: “Tiny, edible plates.” CliffsNotes: “They’re still going to know you didn’t read the book.” Gillette: “We’re just going to keep adding blades.” ChapStick: “You’ll misplace it before the tube’s empty.” Hot Pockets: “Every bite is a different temperature.” Source: honestslogans.com*
 
 BULLSEYE <br/>
-*Don’t get upset if I ask you  where something is in Target when you choose to wear a red shirt and khakis to shop. Humorist Reid Kerr*
+*Don’t get upset if I ask you where something is in Target when you choose to wear a red shirt and khakis to shop. Humorist Reid Kerr*
 
 FLUENT IN INK <br/>
-*I think it's pretty cool how  the Chinese made a language entirely out of tattoos. Submitted by Adam Joshua Smargon, Newark, Delaware*
+*I think it's pretty cool how the Chinese made a language entirely out of tattoos. Submitted by Adam Joshua Smargon, Newark, Delaware*
 
 A CLASSIC CONUNDRUM <br/>
-*I’m trying to get into classical  music, but I can’t find any original recordings. All the music is performed by cover bands. Dan Burt, on humorlabs.com*
+*I’m trying to get into classical music, but I can’t find any original recordings. All the music is performed by cover bands. Dan Burt, on humorlabs.com*
 
 A FEW GRAMS MORE <br/>
 *Instagram is just Twitter for people who go outside. @JoshGondelman*
@@ -209,19 +209,19 @@ WHEN RELATIVES ATTACK <br/>
 *There is nothing more awkward than the moment you realize you’re getting a double-cheek kiss. @michmarkowitz (Michelle Markowitz)*
 
 CERTAINLY (UNDOUBTEDLY, DEFINITELY…) <br/>
-*Been reading up on the  thesaurus lately because a mind is a terrible thing to garbage. @dinokitten*
+*Been reading up on the thesaurus lately because a mind is a terrible thing to garbage. @dinokitten*
 
 THE SMELL OF CONFUSION <br/>
-*If people say they just love the smell of books, I always want to pull them aside and ask, To be clear, do you know how reading works? @bridger_w  (Bridger Winegar)*
+*If people say they just love the smell of books, I always want to pull them aside and ask, To be clear, do you know how reading works? @bridger_w (Bridger Winegar)*
 
 SIMILE AND SAY CHEESE <br/>
 *We get it, poets: Things are like other things. @shutupmikeginn (Mike Ginn)*
 
 NEVERMORE RELEVANT <br/>
-*Yeah, I’d probably freak out too if  a raven flew into my house. That poem still holds up. @SeanWhiteComedy  (Sean Gilbert White)*
+*Yeah, I’d probably freak out too if a raven flew into my house. That poem still holds up. @SeanWhiteComedy (Sean Gilbert White)*
 
 READING THE FIFTH <br/>
-*I’m writing my book in fifth person, so  every sentence starts out with: “I heard from this guy who told somebody ...” Demetri Martin*
+*I’m writing my book in fifth person, so every sentence starts out with: “I heard from this guy who told somebody ...” Demetri Martin*
 
 SERIOUSLY, HOW MANY BLONDES? <br/>
 *How many blondes does it take to screw in a lightbulb? Need to know ASAP. @RobinMcCauley*
@@ -242,73 +242,73 @@ THE TRUTH ABOUT PUPPIES <br/>
 *Just realized a pregnant dog is a dog full of puppies. That’s the best. @shutupmikeginn*
 
 DOG MOM IS ALWAYS RIGHT <br/>
-*“We’re eating  dinner soon.  Don’t fill up  on homework.”  —Dog mom  Alex Baze (@bazecraze)*
+*“We’re eating dinner soon. Don’t fill up on homework.” —Dog mom  Alex Baze (@bazecraze)*
 
 HARRY HILL ON DOG ENTHUSIASM <br/>
 *Why do dogs always race to the door when the doorbell rings? It’s hardly ever for them. Harry Hill*
 
 THE PARADOX OF GROWN-UPS <br/>
-*I spend three minutes every  day choosing a TV channel  to leave on for my dog. Then  I go to work, and people take me seriously as an adult. @damienfahey*
+*I spend three minutes every day choosing a TV channel to leave on for my dog. Then I go to work, and people take me seriously as an adult. @damienfahey*
 
 DUN DUN <br/>
-*The Complete Law and Order boxed set is now available for only $300. The perfect gift for someone unaware of the existence of USA  Network. @EliBraden, comedian*
+*The Complete Law and Order boxed set is now available for only $300. The perfect gift for someone unaware of the existence of USA Network. @EliBraden, comedian*
 
 THE OSCAR GOES TO… <br/>
-*My greatest acting performance is when I check the caller ID, then adopt an air of polite curiosity as  I answer the phone “Hello?” @SethMacFarlane*
+*My greatest acting performance is when I check the caller ID, then adopt an air of polite curiosity as I answer the phone “Hello?” @SethMacFarlane*
 
 HUT, HUT, GRIPE! <br/>
-*Sick of having to go to two  different huts to buy pizza and sunglasses. @Leemanish*
+*Sick of having to go to two different huts to buy pizza and sunglasses. @Leemanish*
 
 CLEAN YOUR PLATE <br/>
 *The closest I’ve been to a diet this year is erasing food searches from my browser history. @PaulyPeligroso*
 
 AMIR BLUMENFELD ON EGGPLANT ALTERNATIVES <br/>
-*If you think  eggplant is good, you should try any other food; it’s much better. @jakeandamir  (Amir Blumenfeld)*
+*If you think eggplant is good, you should try any other food; it’s much better. @jakeandamir (Amir Blumenfeld)*
 
 THE TASTE OF WICKER <br/>
-*Triscuit is the perfect  combination of cracker and doormat. @1CarParade  (Jason Gelles)*
+*Triscuit is the perfect combination of cracker and doormat. @1CarParade (Jason Gelles)*
 
 A BAR WALKS INTO A MAN… <br/>
-*Clif Bars answer the question “What if it wasn’t frowned upon to eat an entire sleeve of mushed-up  oatmeal cookies before noon?” @JulieKlausner*
+*Clif Bars answer the question “What if it wasn’t frowned upon to eat an entire sleeve of mushed-up oatmeal cookies before noon?” @JulieKlausner*
 
 HOLY VISION <br/>
 *Bifocals are God’s way of saying, “Keep your chin up.” Comedian Matt Wohlfarth*
 
 ANTISOCIAL MEDIA <br/>
-*Hate to break it to you,  Facebook, but the entire Internet  is already a Dislike button. @JoshGroban*
+*Hate to break it to you, Facebook, but the entire Internet is already a Dislike button. @JoshGroban*
 
 KITCHEN CONFIDENTIAL <br/>
 *My friends tell me that cooking is easy, but it’s not easier than not cooking. Maria Bamford*
 
 BLOODY GOOD QUESTION <br/>
-*How can you ever be late for anything in London? They have  a huge clock right in the middle  of the town. Jimmy Kimmel*
+*How can you ever be late for anything in London? They have a huge clock right in the middle of the town. Jimmy Kimmel*
 
 MILD, MILD WEST <br/>
 *I think a lot of the conflict that happened in the Wild West could’ve been avoided had architects in those days just made their towns big enough for everyone. Seen on reddit.com*
 
 WELL, DISHES ANNOYING <br/>
-*I’d rather spend ten minutes  rearranging the dishwasher to  accommodate something than spend 30 seconds washing it by hand. @goldengateblond (shauna)*
+*I’d rather spend ten minutes rearranging the dishwasher to accommodate something than spend 30 seconds washing it by hand. @goldengateblond (shauna)*
 
 MARGIN OF ERROR <br/>
-*Here’s some advice: At a job  interview, tell them you’re willing to give 110 percent. Unless the job is a statistician. Comedian Adam Gropman*
+*Here’s some advice: At a job interview, tell them you’re willing to give 110 percent. Unless the job is a statistician. Comedian Adam Gropman*
 
 ROUTER-STILTSKIN <br/>
-*I put so much more effort into naming my first Wi-Fi than my  first child. @1followernodad (Sophia Benoit)*
+*I put so much more effort into naming my first Wi-Fi than my first child. @1followernodad (Sophia Benoit)*
 
 STEWART FRANCIS ON SPELLING <br/>
 *So what if I can’t spell Armageddon? It’s not the end of the world. Stewart Francis*
 
 TRASH OF SOCIETY <br/>
-*“Pickup artists” and “garbagemen” should switch names. @ceejoyner  (Chris Joyner)*
+*“Pickup artists” and “garbagemen” should switch names. @ceejoyner (Chris Joyner)*
 
 PAULA POUNDSTONE ON OVER-SHARING <br/>
 *We need a 12-step group for compulsive talkers. They could call it On Anon Anon. Paula Poundstone*
 
 GROUCHO MARX ON MAKE OUTS <br/>
-*Whoever named  it necking is a poor judge of anatomy. Groucho Marx*
+*Whoever named it necking is a poor judge of anatomy. Groucho Marx*
 
 JAY LENO ON TWINKIES <br/>
-*General Mills  is coming out with an organic Twinkie. Isn’t that called a sponge? Jay Leno*
+*General Mills is coming out with an organic Twinkie. Isn’t that called a sponge? Jay Leno*
 
 BANK ON CONFUSION <br/>
 *Fifth Third Bank? I don’t think you understand how to number things, which is something I generally look for in a bank. @RowdyBowden (derek lawler)*
@@ -329,25 +329,25 @@ DAVID LETTERMAN ON HALLOWEEN <br/>
 *My parents didn't want to move to Florida, but they turned 60 and that's the law. —Jerry Seinfeld*
 
 DOGGONED DUMB <br/>
-*A sign said, “Do not allow your dog to chase,  injure, or worry wildlife.” How is a dog going to “worry” wildlife? Run up to a bird: “Hey, I think you’ve got something on your beak. It could be a tumor.” Andy Kindler*
+*A sign said, “Do not allow your dog to chase, injure, or worry wildlife.” How is a dog going to “worry” wildlife? Run up to a bird: “Hey, I think you’ve got something on your beak. It could be a tumor.” Andy Kindler*
 
 DRUNKARD’S LAW <br/>
-*“Just because you can’t dance doesn’t mean you shouldn’t dance.”  —Alcohol @yoyoha (Josh Hara)*
+*“Just because you can’t dance doesn’t mean you shouldn’t dance.” —Alcohol @yoyoha (Josh Hara)*
 
 ARACHNI-DATE <br/>
 *My girlfriend told me to take a spider out instead of killing it. We went and had some drinks. Cool guy. Wants to be a lawyer. @FattMernandez (Matt Fernandez)*
 
 SHORT ON CLASS <br/>
-*“Don’t worry; I’ll hold your stuff. You just worry about making friends.”  - Cargo Shorts @DearAnyone (Artie Johann)*
+*“Don’t worry; I’ll hold your stuff. You just worry about making friends.” - Cargo Shorts @DearAnyone (Artie Johann)*
 
 GAME RESPECT GAME <br/>
-*My cat just walked up to the paper shredder and said, “Teach me  everything you know.” @NicCageMatch*
+*My cat just walked up to the paper shredder and said, “Teach me everything you know.” @NicCageMatch*
 
 AN OLD ARMY TRUISM… <br/>
 *Coffee tastes better if the latrines are dug downstream from an encampment. Source: milhist.net*
 
 PARENTING IS EASY—I SWEAR! <br/>
-*The biggest change after having kids was putting a swear jar in the house. Whenever I say a bad word,  I have to put a dollar in the jar, and  at the end of every month, I take all that money and buy myself a nice steak for being such a cool dad. Comedian Mark Chalifoux*
+*The biggest change after having kids was putting a swear jar in the house. Whenever I say a bad word, I have to put a dollar in the jar, and at the end of every month, I take all that money and buy myself a nice steak for being such a cool dad. Comedian Mark Chalifoux*
 
 DUPER MAN <br/>
 *I wonder if Superman ever put glasses on Lois Lane’s dog and she was like, “I’ve never seen this dog before. Is this a new dog?” @Robfee*
@@ -368,7 +368,7 @@ PETER SERAFINOWICZ, ON DENIAL <br/>
 *There's no “I” in denial. Peter Serafinowicz*
 
 MATT WOHLFARTH, ON NOSTALGIA <br/>
-*I admit that I live in the past,  but only because housing is so much cheaper. Comedian Matt Wohlfarth*
+*I admit that I live in the past, but only because housing is so much cheaper. Comedian Matt Wohlfarth*
 
 A TOUGH QUESTION, BY JAY LENO <br/>
 *How come you never see a headline like “Psychic Wins Lottery”? Jay Leno*
@@ -386,28 +386,28 @@ A TOUGH QUESTION, BY JERRY SEINFELD <br/>
 *What are they planting to grow the seedless watermelon? Jerry Seinfeld*
 
 A TOUGH QUESTION, BY ZACH GALIFIANAKIS <br/>
-*At what age do you think it’s appropriate to tell  a highway it’s adopted? Zach Galifianakis*
+*At what age do you think it’s appropriate to tell a highway it’s adopted? Zach Galifianakis*
 
 A TOUGH QUESTION, BY GEORGE CARLIN <br/>
-*What should you do when  you see an endangered animal  eating an endangered plant? George Carlin*
+*What should you do when you see an endangered animal eating an endangered plant? George Carlin*
 
 AHEAD OF THE COMPETITION <br/>
-*My neighbor is in the Guinness World Records. He has had 44 concussions. He lives very  to me.  A stone’s throw away, in fact. Stewart Francis*
+*My neighbor is in the Guinness World Records. He has had 44 concussions. He lives very  to me. A stone’s throw away, in fact. Stewart Francis*
 
 A BROW BEATING <br/>
 *I told my girlfriend that it looked like she was drawing her eyebrows too high. She looked surprised. Submitted by Adam Joshua Smargon, Newark, Delaware*
 
 AND THAT'S THE WAY IT IS <br/>
-*Any time a person with a journalism degree writes a story about  a celebrity getting bangs, Walter Cronkite punches an angel. @JENNYJOHNSONHi5*
+*Any time a person with a journalism degree writes a story about a celebrity getting bangs, Walter Cronkite punches an angel. @JENNYJOHNSONHi5*
 
 KEN JENNINGS ON DOG WALKERS <br/>
 *My favorite game  is “Professional Dog Walker or Crazy Person?” @KenJennings*
 
 HOTEL TIME-TRAVEL <br/>
-*A hotel minibar allows you to  see into the future and find out what a can of Pepsi will cost in 2020. Comedian Rich Hall*
+*A hotel minibar allows you to see into the future and find out what a can of Pepsi will cost in 2020. Comedian Rich Hall*
 
 MAGGIE SMITH ON ANNOYING PEOPLE <br/>
-*There’s nothing simpler than avoiding people you don’t like. Avoiding one’s friends, that’s the real test. Source: The Dowager Countess (Maggie Smith),  on Downton Abbey*
+*There’s nothing simpler than avoiding people you don’t like. Avoiding one’s friends, that’s the real test. Source: The Dowager Countess (Maggie Smith), on Downton Abbey*
 
 STEPHEN COLBERT ON INTERNSHIPS <br/>
 *Try an internship! Internships give you all the experience of a summer job without the hassle of a paycheck. Stephen Colbert*
@@ -422,12 +422,12 @@ MY FIRST JOB… <br/>
 *I got my first full-time job, but I could have sworn I was making more money in college, working for my parents as their daughter. Melanie Reno*
 
 FRACTURED FAIRY TALES <br/>
-* There was an old woman who lived in a shoe. She got her own TLC show. The end. —Ryan Anderson  (@kolchak) <br/>
+* There was an old woman who lived in a shoe. She got her own TLC show. The end. —Ryan Anderson (@kolchak) <br/>
 * I have never worked out the moral to Humpty Dumpty. Is it, “Don’t let horses perform medical procedures”?  —Ricky Gervais <br/>
-* Cinderella’s  fairy godmother turned her rags into a gown, mice into horses, and  a pumpkin into endless lattes for her and her BFFs to enjoy. <br/>
-* Old McDonald was dyslexic,  I-E-I-E-O.  —Billy Connolly <br/>
+* Cinderella’s fairy godmother turned her rags into a gown, mice into horses, and a pumpkin into endless lattes for her and her BFFs to enjoy. <br/>
+* Old McDonald was dyslexic, I-E-I-E-O.  —Billy Connolly <br/>
 * And every six months, she would trade in her aging sheep for a new one. Because without a little lamb, Mary didn’t know who she was.    —@andrewhibbard <br/>
-* My wife said she wanted  a “fairy-tale romance,” so I’ve locked her in a tower. —@tonycowards
+* My wife said she wanted a “fairy-tale romance,” so I’ve locked her in a tower. —@tonycowards
 
 
 THE MEANING OF WAR <br/>
@@ -440,7 +440,7 @@ MISFORTUNE COOKIE <br/>
 *After finishing our Chinese food, my husband and I cracked open our fortune cookies. Mine read, “Be quiet for a little while.” His read, “Talk while you have a chance.” Carol Burks, Providence, Rhode Island*
 
 THE FUNNIEST PERSON IN THE WORLD <br/>
-*The Laugh Factory in Los  Angeles invited comedians from around the globe to join its Funniest Person in the World Contest. Here are some finalists: • In Paris, I am driving a Smart car, you know, the very tiny one. But I don’t do it much, because it’s too dangerous. I could get run over by a pedestrian.    Mustapha El Atrassi, France • Have you noticed that all bottled water has the “best before” date printed on it? The water has circled the earth for four billion years …  but now it’s ruined?   Ismo Leikola, Finland • This is the tenth anniversary of my comedy career. It’s also the anniversary of my father begging me not to do comedy. Nitin Mirani, United Arab Emirates*
+*The Laugh Factory in Los Angeles invited comedians from around the globe to join its Funniest Person in the World Contest. Here are some finalists: • In Paris, I am driving a Smart car, you know, the very tiny one. But I don’t do it much, because it’s too dangerous. I could get run over by a pedestrian.    Mustapha El Atrassi, France • Have you noticed that all bottled water has the “best before” date printed on it? The water has circled the earth for four billion years … but now it’s ruined?   Ismo Leikola, Finland • This is the tenth anniversary of my comedy career. It’s also the anniversary of my father begging me not to do comedy. Nitin Mirani, United Arab Emirates*
 
 MATTHEW WOHLFARTH ON EXERCISE <br/>
 *I work out religiously—Christmas and Easter. Submitted by comedian Matthew Wohlfarth*
@@ -448,7 +448,7 @@ MATTHEW WOHLFARTH ON EXERCISE <br/>
 ZEN KOANS FOR THE INTERNET AGE <br/>
 * If an anonymous comment goes unread, is it still irritating? <br/>
 * What is the sound of no hands texting? • If nobody likes your selfie, what is the value of the self? <br/>
-* To see a man’s true face, look to the  photos he hasn’t posted. Brandon Specktor
+* To see a man’s true face, look to the photos he hasn’t posted. Brandon Specktor
 
 DOG ON THE JOB <br/>
 *Sometimes I like to sit my dog down for a performance review, just to remind him who’s boss. @rmfnord*
@@ -463,10 +463,10 @@ WHAT FEBREZE REALLY MEANS <br/>
 *Febreze air fresheners: for people who are like, “Cover a smell instead of cleaning it? Yes, I’m OK with that.” Erin Whitehead @girlwithatail*
 
 SARAH SILVERMAN ON CLEANING HOUSE <br/>
-*My kitchen floor is sticky, and  I had to do something about it. So finally I went out and bought some slippers. Sarah Silverman*
+*My kitchen floor is sticky, and I had to do something about it. So finally I went out and bought some slippers. Sarah Silverman*
 
 THE MARK OF GOOD CLEANING <br/>
-*Oh man, just did some serious cleaning in here. You could  totally eat off this table. Matthew O’Brien @mattOB34*
+*Oh man, just did some serious cleaning in here. You could totally eat off this table. Matthew O’Brien @mattOB34*
 
 ZACH GALIFIANAKIS ON LAUNDRY <br/>
 *You know it’s time to do the laundry when you dry off with a sneaker. Zach Galifianakis*
@@ -475,28 +475,28 @@ DATING A HOARDER <br/>
 *I used to date a hoarder, and she broke up with me. That stings extra hard—I’m like the one thing she can get rid of. Sam Morril*
 
 BULLETIN: STOOP SALE <br/>
-*Stoop sale this Sunday, 12 to 4 p.m.  Throwing all my crap in the  garbage this Sunday, 4:15 p.m. Ritch Duncan @ritchied*
+*Stoop sale this Sunday, 12 to 4 p.m. Throwing all my crap in the garbage this Sunday, 4:15 p.m. Ritch Duncan @ritchied*
 
 MEGAN AMRAM ON MYSTERY <br/>
 *Every novel is a mystery novel if you never finish it. @meganamram*
 
 THE STAR OF CAKE BOSS WAS ARRESTED… <br/>
-*The star of Cake Boss was  arrested for DWI. Police interrogated him for 30 minutes at 350 degrees. Comedian Joe Toplyn*
+*The star of Cake Boss was arrested for DWI. Police interrogated him for 30 minutes at 350 degrees. Comedian Joe Toplyn*
 
 WHEN SMART IS TOO SMART <br/>
 *I can still remember a time when I knew more than my phone. @clarkekant*
 
 PARENTING FADS ACCORDING TO THE ONION <br/>
-*The latest parenting fads,  according to the Onion: • Couples are waiting to announce their pregnancy until after their child has graduated college and become  a partner in a successful law firm. • Parents are choosing not to learn the gender of their obstetrician. • As part of the new Infinity Womb trend, women are using a wide range of Lamaze, strength-training, and yoga techniques to forcefully prevent their children from ever leaving their wombs, forever protecting them from the harsh realities of the world.*
+*The latest parenting fads, according to the Onion: • Couples are waiting to announce their pregnancy until after their child has graduated college and become a partner in a successful law firm. • Parents are choosing not to learn the gender of their obstetrician. • As part of the new Infinity Womb trend, women are using a wide range of Lamaze, strength-training, and yoga techniques to forcefully prevent their children from ever leaving their wombs, forever protecting them from the harsh realities of the world.*
 
 @BILLMURRAY ON CHILD NAMING <br/>
-*The cool part about naming  your kid is you don’t have to add  six numbers to make sure the name  is available. @billmurray*
+*The cool part about naming your kid is you don’t have to add six numbers to make sure the name is available. @billmurray*
 
 HEDBERG ON HIGHLIGHTS <br/>
 *I got my hair highlighted because I thought some strands were more important than others. Comedian Mitch Hedberg*
 
 AIRPORT INSECURITY <br/>
-*The head of the TSA resigned after about four years on the job. Here’s how much of America heard the news. “[John Pistole retired today.] His employees toasted him with less than three ounces of champagne. Then they gave him a gold watch, and he had to take it off and put it in a bin.” —Conan O’Brien, on Conan “He actually stepped down a while ago, but he’s been going through  security for three and a half years.” —Jimmy Fallon, on The Tonight Show*
+*The head of the TSA resigned after about four years on the job. Here’s how much of America heard the news. “[John Pistole retired today.] His employees toasted him with less than three ounces of champagne. Then they gave him a gold watch, and he had to take it off and put it in a bin.” —Conan O’Brien, on Conan “He actually stepped down a while ago, but he’s been going through security for three and a half years.” —Jimmy Fallon, on The Tonight Show*
 
 WAKING UP IS HARD TO DO <br/>
 *I feel like I would enjoy getting out of bed more if I had to do it only three times a week. This every-day thing is overkill. @Popcorngoddess1*
@@ -504,12 +504,12 @@ WAKING UP IS HARD TO DO <br/>
 NOTABLE NEVER-ISMS <br/>
 * Never try to tell everything you know. It may take too short a time. —Norman Ford <br/>
 * Never trust a man when he’s in love, drunk, or running for office. —Shirley Maclaine <br/>
-* Never board  a commercial  aircraft if the  pilot is wearing  a tank top. —Dave Barry <br/>
-* Never be in a  hurry to terminate a marriage. You  may need this person to finish a sentence. —Erma Bombeck • Never argue with a doctor; he has inside information. —Bob Elliott and Ray Goulding <br/>
-* Never keep up with the Joneses. Drag them down to your level; it’s cheaper. —Quentin  Crisp
+* Never board a commercial aircraft if the pilot is wearing a tank top. —Dave Barry <br/>
+* Never be in a hurry to terminate a marriage. You may need this person to finish a sentence. —Erma Bombeck • Never argue with a doctor; he has inside information. —Bob Elliott and Ray Goulding <br/>
+* Never keep up with the Joneses. Drag them down to your level; it’s cheaper. —Quentin Crisp
 
 STEER CLEAR OF THIS JOKE <br/>
-*A farmer counted 196 cows in  the field. But when he rounded them up, he had 200.*
+*A farmer counted 196 cows in the field. But when he rounded them up, he had 200.*
 
 WHERE ARE AVERAGE THINGS MANUFACTURED? <br/>
 *  The satisfactory.*
@@ -518,25 +518,25 @@ DID YOU DYE YOUR BEARD? <br/>
 *You know you’re getting old when Santa starts looking younger. Robert Paul*
 
 THE WRIGHT WAY TO GIVE <br/>
-*One Christmas, my grandfather gave me a box  of broken glass. He gave my brother a box of  Band-Aids and said, “You two share.” Steven Wright*
+*One Christmas, my grandfather gave me a box of broken glass. He gave my brother a box of Band-Aids and said, “You two share.” Steven Wright*
 
 MAZEL TOV, MARY! <br/>
-*Christmas is a baby shower that  went totally  overboard. Andy Borowitz*
+*Christmas is a baby shower that went totally overboard. Andy Borowitz*
 
 CHRISTMAS FREEDOM <br/>
-*The holiday  season: a deeply religious  time that each of us  observes, in his own way, by going to the   mall of his choice. Dave Barry*
+*The holiday season:a deeply religious time that each of us observes, in his own way, by going to the  mall of his choice. Dave Barry*
 
 BETTER LUCK NEXT YEAR <br/>
 *I once bought my kid a set of batteries for Christmas with a note on it saying “Toys not included.” Bernard Manning*
 
 INSULTING SANTA <br/>
-*This mall  Santa seems insulted that I put down that protective paper before sitting on his lap. Conan O'Brien*
+*This mall Santa seems insulted that I put down that protective paper before sitting on his lap. Conan O'Brien*
 
 SNAPPY ANSWERS TO BAD RÉSUMÉS <br/>
-*Professionals at the staffing agency Robert Half International have seen a lot of peculiar résumés. Here are some favorite gaffes, followed by wisecracks from the pros: • Education: “I have a bachelorette degree in computers.” (The pajama party starts at 7 p.m.) • Tools: “Human brain 1.0.” (We’ll wait for the upgrade.) • References: “My landscaper.”  (A reference who will give you two green thumbs up.) • Date of Employment: “2002–9999.” (She’s earned her gold watch!) • Experience: “Worked successfully on a team of one.” (I assume you all got along?) From resumania.com and Robert Half*
+*Professionals at the staffing agency Robert Half International have seen a lot of peculiar résumés. Here are some favorite gaffes, followed by wisecracks from the pros: • Education: “I have a bachelorette degree in computers.” (The pajama party starts at 7 p.m.) • Tools: “Human brain 1.0.” (We’ll wait for the upgrade.) • References: “My landscaper.” (A reference who will give you two green thumbs up.) • Date of Employment: “2002–9999.” (She’s earned her gold watch!) • Experience: “Worked successfully on a team of one.” (I assume you all got along?) From resumania.com and Robert Half*
 
 IT BEATS A BOARD MEETING <br/>
-*The office Christmas party  is a great opportunity to catch up  with people you haven’t seen for  20 minutes. @juliussharpe*
+*The office Christmas party is a great opportunity to catch up with people you haven’t seen for 20 minutes. @juliussharpe*
 
 A FAX? <br/>
 *You’re sending me something via fax? What is it, an important document from 1993? From meetingboy.com*
@@ -545,7 +545,7 @@ SKY'S THE LIMIT <br/>
 *Humankind has a perfect record in aviation; we never left one up there. Source: propilots.org*
 
 DAD JOKES FROM GRANDDAD <br/>
-*None of my grandsons share my corny sense of humor. When the family is eating lasagna, I say, “Lean over your plate, boys. You’ll get  less-on-ya.” I say to the ten-year-old, “Don’t yell through the screen; you’ll strain your voice.” And when I took another grandson to the zoo, I asked, “Do you know why that snake’s not pressed against the glass? He doesn’t want to be a windshield viper.” They’ll probably laugh later. Homer Adams, Nashville, Tennessee*
+*None of my grandsons share my corny sense of humor. When the family is eating lasagna, I say, “Lean over your plate, boys. You’ll get less-on-ya.” I say to the ten-year-old, “Don’t yell through the screen; you’ll strain your voice.” And when I took another grandson to the zoo, I asked, “Do you know why that snake’s not pressed against the glass? He doesn’t want to be a windshield viper.” They’ll probably laugh later. Homer Adams, Nashville, Tennessee*
 
 CASTING A SPELL <br/>
 *Can’t believe the National Spelling Bee ended in a tye. @MattGoldich*
@@ -566,43 +566,43 @@ CUT AND RUN <br/>
 *The one thing I’ve learned from the World Cup is that Europe still hasn’t mastered the haircut. @Bazecraze*
 
 HOW DO YOU DROWN A HIPSTER? <br/>
-*Throw him into the mainstream. Submitted by Jesse Rehn,  Green Bay, Wisconsin*
+*Throw him into the mainstream. Submitted by Jesse Rehn, Green Bay, Wisconsin*
 
 THE GREATEST DISGUISE <br/>
 *I wonder if Halloween is the one day of the year Lady Gaga wears sensible slacks. Jimmy Kimmel*
 
 I OWE MY LIFE TO JUSTIN BIEBER… <br/>
-*... I was in a coma for two years, until a nurse played one of  his songs on the radio in my room, and I had to wake up  to turn it off.*
+*... I was in a coma for two years, until a nurse played one of his songs on the radio in my room, and I had to wake up to turn it off.*
 
 BACK TO THE CLEANERS <br/>
 *My biggest problem with time travel is: How many days would you pack for? @JoshGondelman*
 
 OR MAYBE WHILE BREAKDANCING <br/>
-*The worst time to have a heart  attack is during a game of charades. Demetri Martin*
+*The worst time to have a heart attack is during a game of charades. Demetri Martin*
 
 A COLORFUL DIET <br/>
-*My parents used to stuff  me with candy when I was a kid. M&M’s, Jujubes, SweeTarts. I don’t think they wanted a child; I think they wanted a piñata. Wendy Liebman*
+*My parents used to stuff me with candy when I was a kid. M&M’s, Jujubes, SweeTarts. I don’t think they wanted a child; I think they wanted a piñata. Wendy Liebman*
 
 THE BETTER PALEO DIET <br/>
-*I’m on the Paleo diet,  except I’m the caveman who discovered Snickers. @rexhuppke*
+*I’m on the Paleo diet, except I’m the caveman who discovered Snickers. @rexhuppke*
 
 YOU ARE WHAT YOUR EAT <br/>
 *I used to love the candy Nerds, but I stopped eating them when I realized that for me, it was basically cannibalism. Rob O’Reilly*
 
 A HOLIDAY QUIZ <br/>
-*“Pretend to be someone you’re  not, and receive candy.” Quick:  Halloween or  Valentine’s Day? @aaronfullerton*
+*“Pretend to be someone you’re not, and receive candy.” Quick: Halloween or Valentine’s Day? @aaronfullerton*
 
 I'M A BUSY GHOST, PEOPLE <br/>
 *People always ask kids the same stupid questions. “What are you supposed to be?” I’m supposed to be done by now. You wanna move it along with the 3 Musketeers? Jerry Seinfeld*
 
 A FUN-SIZE QUIBBLE <br/>
-*When it comes  to candy bars, the term fun-sized  is misleading. There is nothing fun about your candy bar being ⅛ the size of a regular bar. You should call them what they are:  “disappointment-sized.” Jimmy Kimmel*
+*When it comes to candy bars, the term fun-sized is misleading. There is nothing fun about your candy bar being ⅛ the size of a regular bar. You should call them what they are: “disappointment-sized.” Jimmy Kimmel*
 
 THE FACE OF DECEPTION <br/>
 *“I have a beard.” —a bald-faced liar Myq Kaplan*
 
 THE REAL REASON FOR SHAVING CREAM <br/>
-*Do you think shaving cream really softens your beard …  or is it just so you don’t lose your place? Jackie Flynn*
+*Do you think shaving cream really softens your beard … or is it just so you don’t lose your place? Jackie Flynn*
 
 WHEN IS YOUR BEARD TOO LONG? <br/>
 *When the comments turn from “Hey! I really like your beard!” into “Hey! … A beard!” Ron Babcock*
@@ -614,7 +614,7 @@ PICK A 'VEMBER, ANY 'VEMBER <br/>
 *While you’re honoring Movember by not shaving for prostate cancer awareness, I’ll be celebrating Doughvember, the pizza month I made up. @ChrisThayerSays*
 
 THE SPIRIT OF MOVEMBER <br/>
-*I won’t be shaving this November, in order to raise awareness for  how lazy I am. Tim Siedell*
+*I won’t be shaving this November, in order to raise awareness for how lazy I am. Tim Siedell*
 
 MILES AND GIGABYTES AWAY <br/>
 *Right now, I’m at work, using the Internet. But in my mind, I’m already at home, using the Internet. @Bridger_w*
@@ -623,13 +623,13 @@ AIR FORCE TRUISMS <br/>
 *“Never fly in the same cockpit with someone braver than you.” “The only time you have too much fuel is when you’re on fire.” “Weather forecasts are horoscopes with numbers.” “Airspeed, altitude, and brains: Two are always needed to successfully complete the flight.”*
 
 TERRIFIED: THE ONLY WAY TO FLY <br/>
-*Richard Branson has announced plans to develop a new type of plane that can fly  from New York  to Tokyo in one  hour. Apparently,  the engines are  powered by  human screams. Seth Meyers*
+*Richard Branson has announced plans to develop a new type of plane that can fly from New York to Tokyo in one hour. Apparently, the engines are powered by human screams. Seth Meyers*
 
 A MOMENT OF REFLECTION <br/>
-*I shave each morning in front  of my car’s passenger-side mirror. That way, I get a closer shave than  it actually appears. Submitted by Philip Rogers,  Latham, New York*
+*I shave each morning in front of my car’s passenger-side mirror. That way, I get a closer shave than it actually appears. Submitted by Philip Rogers, Latham, New York*
 
 START OVER, POR FAVOR? <br/>
-*After 12 years of therapy,  my psychiatrist said something that brought tears to my eyes. He said, “No hablo Inglés.” Comedian Ronnie Shakes*
+*After 12 years of therapy, my psychiatrist said something that brought tears to my eyes. He said, “No hablo Inglés.” Comedian Ronnie Shakes*
 
 FROM YOUR LIPS TO GOD’S…LIPS <br/>
 *In Heaven, you get back all the Chapsticks you lost. @IamEnidColeslaw*
@@ -644,10 +644,10 @@ A THANKSGIVING PROBLEM <br/>
 *When I trace a turkey, it comes out looking exactly like my hand. @ConanOBrien*
 
 DOING THE MAN DANCE <br/>
-*If you’ve seen me impatiently standing in line, then you’ve seen  me dancing at a concert. @SammyRhodes*
+*If you’ve seen me impatiently standing in line, then you’ve seen me dancing at a concert. @SammyRhodes*
 
 THE MAXIMUM-SECURITY BATHROOM <br/>
-*If a company’s most valuable  resource is its people, how come  the employees aren’t locked up,  but the toilet paper is in a  reinforced steel box with a lock, bolted to the stall? Mark Severin, from humorlabs.com*
+*If a company’s most valuable resource is its people, how come the employees aren’t locked up, but the toilet paper is in a reinforced steel box with a lock, bolted to the stall? Mark Severin, from humorlabs.com*
 
 MILITANT ROACHES <br/>
 *I’m convinced my cockroaches have military training. I set out a roach bomb—they defused it. —Comedian Jay London*
@@ -659,7 +659,7 @@ IF TRUTH BE BEAUTY… <br/>
 *If truth is beauty, how come no one has their hair done in a library? Lily Tomlin*
 
 IF YOU CAN'T BEAT 'EM… <br/>
-*If you can’t beat them, arrange  to have them beaten. George Carlin*
+*If you can’t beat them, arrange to have them beaten. George Carlin*
 
 WHERE THERE'S A WILL… <br/>
 *Where there’s a will, there’s a relative. Ricky Gervais*
@@ -668,10 +668,10 @@ A PENNY SAVED… <br/>
 *A penny saved is a penny that will sit around in a jar for five years. @Keatingthomas*
 
 TECH-NO-LIMITS <br/>
-*Can a 3-D printer make ink  cartridges for a 2-D printer? Comedian Joe Mande*
+*Can a 3-D printer make ink cartridges for a 2-D printer? Comedian Joe Mande*
 
 THE OTHER MORTAL COILS <br/>
-*I told the kids I never want to  live in a vegetative state, dependent on some machine and fluids from  a bottle. So they unplugged my  computer and threw out my wine. Submitted by Beverly McLaughlin,  Burnsville, Minnesota*
+*I told the kids I never want to live in a vegetative state, dependent on some machine and fluids from a bottle. So they unplugged my computer and threw out my wine. Submitted by Beverly McLaughlin, Burnsville, Minnesota*
 
 ICED TO EAT YOU <br/>
 *Happy One-year anniversary to the Lean Cuisine in my freezer! @SCbchbum*
@@ -680,7 +680,7 @@ WAX ON, MOUTH OFF <br/>
 *Karate: the ancient Japanese art of getting people to buy lots of belts. Comedian Myq Kaplan*
 
 I NEVER FEEL MORE… <br/>
-*I never feel more privileged  than when I get angry about a website design. Comedian Kelly Oxford*
+*I never feel more privileged than when I get angry about a website design. Comedian Kelly Oxford*
 
 BEFORE LINKEDIN… <br/>
 *Before LinkedIn, I didn’t know any strangers. @Joshmalina*
@@ -689,19 +689,19 @@ SKIP TO THE GOOD PART, PLEASE <br/>
 *I wish people were like Internet videos and you could tap them lightly to see a clock of how much longer they’re going to be talking. @juliussharpe*
 
 LOLHUMANS.COM <br/>
-*I bet cats have  a secret website where they  upload clips of cute humans  trying to open DVD packaging  and jump-start  cars. @rolldiggity  *
+*I bet cats have a secret website where they upload clips of cute humans trying to open DVD packaging and jump-start cars. @rolldiggity  *
 
 HUNTER, GATHERER, MANAGER? <br/>
 *I’m pretty sure the dinosaurs died out when they stopped gathering food and started having meetings to discuss gathering food. From meetingboy.com*
 
 QUIP TO COMPLETE PURCHASE <br/>
-*I used to find buying books from Amazon slow and inconvenient, until one day the  receptionist suggested  I use their website. Peter Serafinowicz*
+*I used to find buying books from Amazon slow and inconvenient, until one day the receptionist suggested I use their website. Peter Serafinowicz*
 
 KILLING TIME ONLINE <br/>
 *The only people who don’t click Skip on ads before YouTube videos are people who died during that ad. @Damienfahey*
 
 EVERY MARRIAGE NEEDS A SPIN DOCTOR <br/>
-*My wife told me that I twist everything she says to my  advantage. I take that as a compliment. Submitted by reader D. T.*
+*My wife told me that I twist everything she says to my advantage. I take that as a compliment. Submitted by reader D. T.*
 
 THAT'S WHAT I CALL 'FORCE QUIT' <br/>
 *I’m thinking of opening a firing range where all the targets are shaped like computers with screens full of pop-up ads. Comedian Dan Burt*
@@ -710,49 +710,49 @@ THE AIRBORNE OBNOXIOUS EVENT <br/>
 *“Ohhh, bless you … Bless you … Riiiight. Because you’re special air.”     —A burp to a sneeze Comedian Andrew Hibbard*
 
 THE ONLY QUALIFICATION… <br/>
-*The only qualification for working at an airline is making  a confused face at a monitor. Comedian Julius Sharpe*
+*The only qualification for working at an airline is making a confused face at a monitor. Comedian Julius Sharpe*
 
 CATCH AND RETWEET <br/>
-*Give a man a fish, and he’ll  Instagram it; teach a man to fish, and he’ll still Instagram it. @hipstermermaid*
+*Give a man a fish, and he’ll Instagram it; teach a man to fish, and he’ll still Instagram it. @hipstermermaid*
 
 I INVENTED A NEW WORD: <br/>
 *plagiarism. Submitted by M. R.*
 
 PSYCHED OUT <br/>
-*I spent four years in  college. I didn’t learn  a thing. It was really  my own fault. I had  a double major  in psychology  and reverse  psychology. B. J. Novak, who says he was  hired as a writer  for The Office  on the strength  of the joke above.*
+*I spent four years in college. I didn’t learn a thing. It was really my own fault. I had a double major in psychology and reverse psychology. B. J. Novak, who says he was hired as a writer for The Office on the strength of the joke above.*
 
 HONESTLY KIND OF FUGLY ABE <br/>
 *If I were two-faced, would I be wearing this one? Abraham Lincoln*
 
 SPEAK SOFTLY, KICK GENTLY <br/>
-*If you could kick the person in the pants responsible for most of your trouble, you wouldn’t sit for  a month. Theodore Roosevelt*
+*If you could kick the person in the pants responsible for most of your trouble, you wouldn’t sit for a month. Theodore Roosevelt*
 
 FIVE-FINGER FLIP-FLOP <br/>
-*Give me a one-handed economist!  All my  economists say, “On the one hand ... on the other.” Harry Truman*
+*Give me a one-handed economist! All my economists say, “On the one hand ...on the other.” Harry Truman*
 
 WAKE THE PREZ <br/>
 *I have left orders to be awakened at any time in case of a national emergency—even if I’m in a Cabinet meeting. —Ronald Reagan*
 
 RIGHT TO IGNORE <br/>
-*Being president is like  running a cemetery: You’ve got a lot of people under you, and nobody’s listening. Bill Clinton*
+*Being president is like running a cemetery: You’ve got a lot of people under you, and nobody’s listening. Bill Clinton*
 
 GORGEOUS GEORGE <br/>
-*I don’t think George  Clooney has  a bathroom mirror, just a note taped to the wall that says “Don’t worry about it.” Comedian  Eli Yudin*
+*I don’t think George Clooney has a bathroom mirror, just a note taped to the wall that says “Don’t worry about it.” Comedian Eli Yudin*
 
 LOWER YOUR EARS <br/>
 *Haircuts are great because I did none of the work but get all the credit. @ludwig (Ludwig Pettersson)*
 
 PORTABLE PRIMPING <br/>
-*People always ask me how long  it takes to do my hair. I don’t know. I’m never there. Dolly Parton*
+*People always ask me how long it takes to do my hair. I don’t know. I’m never there. Dolly Parton*
 
 CAMERA NOSTALGIA <br/>
-*One time, a guy handed me a  picture and said, “Here’s a picture  of me when I was younger.” Every picture of you is when you were younger. Comedian Mitch Hedberg*
+*One time, a guy handed me a picture and said, “Here’s a picture of me when I was younger.” Every picture of you is when you were younger. Comedian Mitch Hedberg*
 
 TRAPPIEST PLACE ON EARTH <br/>
 *A man won an $8,000 settlement from Disneyland after he got stuck on the It’s a Small World ride. He said he’ll use the money to cut out the part of his brain that won’t stop playing “It’s a Small World After All.” Conan O’Brien*
 
 HOW HOT WAS IT? <br/>
-*It was so hot in Beverly Hills,  people were frying egg whites on the sidewalk. Comedian Matt Wohlfarth*
+*It was so hot in Beverly Hills, people were frying egg whites on the sidewalk. Comedian Matt Wohlfarth*
 
 A UNIFIED ASSAULT <br/>
 *Hold, Brothers, Hold ... CHARGE!!! (Ice at the bottom of my cup) Demetri Martin*
@@ -803,7 +803,7 @@ THE TIME TRAVELER PROTEST <br/>
 *T NOW! What do we want? MORE TIME-TRAVEL JOKES! When do we want them? RIGH  @johnfreiler*
 
 I HIDE PHOTOS… <br/>
-*I hide photos on my computer of me petting animals at the zoo in  a file named Fireworks and vacuums so my dog won’t find them. @EliTerry*
+*I hide photos on my computer of me petting animals at the zoo in a file named Fireworks and vacuums so my dog won’t find them. @EliTerry*
 
 SWIMMING IS CONFUSING… <br/>
 *Swimming is a confusing sport, because sometimes you do it for fun, and other times you do it to not die. Comedian Demetri Martin*
@@ -812,16 +812,16 @@ EVERY TIME I SAY THAT… <br/>
 *Every time I say that I’m ready to order in a restaurant, what I really mean is that I’m not ready but the panic will help me make a decision. @adamhess1*
 
 I DON’T WANT TO SAY WE EAT OUT… <br/>
-*I don’t want to say we eat out  a lot, but I’ve noticed that lately when I call my kids for dinner, they run to the car. —Julie Kidd*
+*I don’t want to say we eat out a lot, but I’ve noticed that lately when I call my kids for dinner, they run to the car. —Julie Kidd*
 
 TAKING THE CAKE <br/>
-*“You can’t have your cake and  eat it too.”—People who don’t understand what cake  is for. —@ShiraSelko*
+*“You can’t have your cake and eat it too.”—People who don’t understand what cake is for. —@ShiraSelko*
 
 A BEEF WITH TAPAS <br/>
-*Guess what, tapas: You’re the exact Venn diagram midpoint of my two least favorite things  in the world: small portions and sharing  with anybody. —@EireannDolan*
+*Guess what, tapas: You’re the exact Venn diagram midpoint of my two least favorite things in the world: small portions and sharing with anybody. —@EireannDolan*
 
 LUNCHTIME MVP <br/>
-*Bacon was definitely the  first-round draft pick in the BLT. No one’s building a sandwich around lettuce. —@joshgondelman*
+*Bacon was definitely the first-round draft pick in the BLT. No one’s building a sandwich around lettuce. —@joshgondelman*
 
 EXPIRED LOGIC <br/>
 *Why is there an expiration date on sour cream? —George Carlin*
@@ -830,10 +830,10 @@ I WENT TO A RESTAURANT THAT SERVES… <br/>
 *I went to a restaurant that serves “breakfast at any time,” so I ordered French toast during the Renaissance. —Steven Wright*
 
 UNTANGLING EARBUDS IS THE NEW… <br/>
-*On the subway, untangling earbuds is the new knitting. The woman across from me could have finished  a cardigan by now. —Greg Preece, on humorlabs.com*
+*On the subway, untangling earbuds is the new knitting. The woman across from me could have finished a cardigan by now. —Greg Preece, on humorlabs.com*
 
 THE KEY TO EATING HEALTHY… <br/>
-*The key to eating healthy is  not eating any food that has a TV commercial. —Comedian Mike Birbiglia*
+*The key to eating healthy is not eating any food that has a TV commercial. —Comedian Mike Birbiglia*
 
 NEXT TIME SOMEONE COMPLAINS ABOUT… <br/>
 *Next time somebody complains about millennials, remind him which generation linoleumed over all those beautiful hardwood floors. —@BoobsRadley*
@@ -842,10 +842,10 @@ I’D LIKE TO HAVE A KID… <br/>
 *I’d like to have a kid, but I’m not sure I’m ready to spend ten years of my life constantly asking someone where his shoes are. —@DamienFahey*
 
 GIGS IN SPACE <br/>
-*Lady Gaga is now saying that sometime in 2015 she will actually perform a concert from space. It’s  always so much fun when artists  do a show in their hometown. —Jimmy Fallon,  on Late Night with Jimmy Fallon*
+*Lady Gaga is now saying that sometime in 2015 she will actually perform a concert from space. It’s always so much fun when artists do a show in their hometown. —Jimmy Fallon, on Late Night with Jimmy Fallon*
 
 COMPOSING AN INSULT <br/>
-*How classical maestros also used their batons to stab each other in the back: •“If he had been making shell  casings during the war, it might  have made for better music.” Camille Saint-Saëns, on Maurice Ravel •“Wagner has beautiful moments but awful quarters of an hour.” Gioachino Rossini, on Richard Wagner •“I liked the opera very much.  Everything but the music.” Benjamin Britten, on Igor Stravinsky —Source: classicfm.com*
+*How classical maestros also used their batons to stab each other in the back: •“If he had been making shell casings during the war, it might have made for better music.” Camille Saint-Saëns, on Maurice Ravel •“Wagner has beautiful moments but awful quarters of an hour.” Gioachino Rossini, on Richard Wagner •“I liked the opera very much. Everything but the music.” Benjamin Britten, on Igor Stravinsky —Source: classicfm.com*
 
 WHAT DOES IT MEAN IF… <br/>
 *What does it mean if a black squirrel crosses your path? Will I have adorably bad luck? —@Suddain*
@@ -899,7 +899,7 @@ MY DAD DIDN’T TEXT… <br/>
 *My dad didn’t text me after the Patriots game, which is basically a Life Alert signal if you’re from New England. —@joshgondelman*
 
 THE RULES OF FOOTBALL… <br/>
-*The rules of football and the plot of The Godfather are the two most  complicated things that every guy understands no matter how dumb he is. —Julian McCullough*
+*The rules of football and the plot of The Godfather are the two most complicated things that every guy understands no matter how dumb he is. —Julian McCullough*
 
 ANYONE WHO’S JUST DRIVEN… <br/>
 *Anyone who’s just driven 90 yards against huge men trying to kill them has earned the right to do jazz hands. —Craig Ferguson*
@@ -1187,10 +1187,10 @@ FRIED AND TRUE <br/>
 *All I want is for people to be as excited to see me as they are when finding a curly fry amongst their regular ones. —@thejohnblog Girls love french fries. But only if they didn’t order them. —@nickspears*
 
 BOO! <br/>
-*I think my parents have become ghost hunters, because every room they go in they think is cold.   —Comedian Matt Weinhold*
+*I think my parents have become ghost hunters, because every room they go in they think is cold.  —Comedian Matt Weinhold*
 
 PEN IN CHEEK <br/>
-*Here are intentionally bad first lines from nonexistent novels, courtesy of the annual Lyttle  Lytton Contest: “Agent Jeffrey’s trained eyes rolled carefully around the room, taking in the sights and sounds.” “It was a beautiful night, and the full moon glew like it had never glown before.” “‘BOOM!’ said the bomb very loudly.” “‘Ooh la la!’ whispered Larry in French.” “She had the kind of face that made you want to say, ‘Hey, look  at your face!’”*
+*Here are intentionally bad first lines from nonexistent novels, courtesy of the annual Lyttle Lytton Contest: “Agent Jeffrey’s trained eyes rolled carefully around the room, taking in the sights and sounds.” “It was a beautiful night, and the full moon glew like it had never glown before.” “‘BOOM!’ said the bomb very loudly.” “‘Ooh la la!’ whispered Larry in French.” “She had the kind of face that made you want to say, ‘Hey, look at your face!’”*
 
 ONE-TOPPING MIND <br/>
 *Did you ever notice that from the time you hang up the phone until the pizza guy shows up, the only conversation you have is “Where’s the guy with our pizza?” —Comedian Bob Marley*
@@ -1223,7 +1223,7 @@ A COMMON ENEMY <br/>
 *Even though I’m from Boston, I feel right at home in the South. You see, Boston is also full of people with thick accents who hate the Yankees. —Conan O’Brien*
 
 CURSED WORDS <br/>
-*“I need to talk to you” is the one sentence that has the power to make you  remember every bad thing you’ve ever done in your life. —Aaron Karo, on ruminations.com*
+*“I need to talk to you” is the one sentence that has the power to make you remember every bad thing you’ve ever done in your life. —Aaron Karo, on ruminations.com*
 
 WHAT DOESN’T KILL YA… <br/>
 *Nobody wants a pain reliever that’s anything less than extra-strength: “Give me the maximum-allowable dosage. Figure out what will kill me, and then back it off a little bit.” —Jerry Seinfeld*

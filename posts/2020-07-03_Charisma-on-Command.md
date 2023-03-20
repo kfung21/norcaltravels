@@ -8,7 +8,6 @@ hidden: false
 sidebar: auto
 tags: ['living', 'communication', 'relationships']
 ---
-<TagLinks />
 
 This is a compilation from <a href="https://www.youtube.com/user/charismaoncommand">Charisma on Command Youtube Channel</a>. 
 

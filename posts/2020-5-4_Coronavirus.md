@@ -1,6 +1,6 @@
 ---
 title: Coronavirus
-date: 05-04-2020
+date: 2020-05-04
 tags: 
   - stateofthetimes
 author: NCT
